@@ -1,5 +1,5 @@
 # 🚀 About Me:
-Tech Enthusiast | Constant Learner | Linux & Terminal Expert
+**Tech Enthusiast | Lifelong Student | Linux & Terminal Expert**
 
 
 ## 🌐 Socials:
