@@ -1,4 +1,4 @@
-# ⚡ Ron 
+# ⚡ About Me
 
 **AI | Linux | Sport Science**
 
